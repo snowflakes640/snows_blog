@@ -1,0 +1,6 @@
+#### Working outside
+One of the things that I never seem to understand is the fine line between in-laws house being "my family, my everything" and "stranger is always stranger". 
+When it is about staying and contributing - "This is *my* family. This is where peace is." Oh OK. But - "Cannot spend someone else's money like it is mine." Umm... hello?
+So in-laws house *my family, my home, my everything*. I put my effort, my time, my talent into this *family of mine*. But when it comes to my right, I cannot do anything as it is mine. Then suddenly I am using *someone else's* money, I am using *someone else's* right. SO, this is the line between this being mine and yours? This is where it is not "ours" anymore. Anything yours is mine and anything mine is also mine - only when it is about my family?
+
+People are disgusting. So disgusting that, they made something like "marriage" disgusting. Now I think my problem is not marriage, it's people. It has always been people. How selfish they are. How manipulative they are, how dishonest they are and how ruthless they are to some other people.
