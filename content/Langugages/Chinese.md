@@ -8,7 +8,7 @@ Apparently, their govt of that time thought it is time to remove lots of the str
 What are Chinese characters? 
 *This is my favourite part.* So these characters are called **Logograms/graphs** or **Pictograms/graphs** - Symbols that have meanings.
 
-Chinese words are ==morphemes==
+==Chinese words are morphemes==
  Let's walk through an example... 
  
 > [!example] Intro into Morphemes
